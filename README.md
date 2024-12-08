@@ -1,3 +1,5 @@
+![Preview Image](44459e03-a253-4104-a722-c05b7873c2e8.jpg)
+
 BEST SOFT FOR EscapefromTarkov
 
 GUIDE HOW TO USE OUR SOFTWARE
